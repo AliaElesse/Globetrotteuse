@@ -1,4 +1,4 @@
-# Globetrotteuse
+# Africa
 Mon Indépendance ChaCha
 
 30 Juin 20202.Je suis dans mon lit en train de suivre la conférence de Jean Omasombo Tshonda, chercheur au service Histoire et Politique du Musée royal de l’Afrique centrale et professeur à l’Université de Kinshasa.
