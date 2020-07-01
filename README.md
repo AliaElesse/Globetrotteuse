@@ -1,7 +1,7 @@
 # Globetrotteuse
 Mon Indépendance ChaCha
 
-Je suis dans mon lit en train de suivre la conférence de Jean Omasombo Tshonda, chercheur au service Histoire et Politique du Musée royal de l’Afrique centrale et professeur à l’Université de Kinshasa.
+30 Juin 20202.Je suis dans mon lit en train de suivre la conférence de Jean Omasombo Tshonda, chercheur au service Histoire et Politique du Musée royal de l’Afrique centrale et professeur à l’Université de Kinshasa.
 
 Pour les 60 ans d’indépendance de mon pays, qu’est ce que j’ai pu donner à ce pays ?
 En effet, ce type de fête nous rappelle notre histoire nous ramène en arrière, mais également remet en question notre actualité.
